@@ -1,1 +1,1 @@
-[Click here](https://salekinchowdhury.github.io/profile/)
+[salekinchowdhury.github.io/profile](https://salekinchowdhury.github.io/profile/)
